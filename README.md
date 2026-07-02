@@ -1,1 +1,0 @@
-# kindercare-mobile
